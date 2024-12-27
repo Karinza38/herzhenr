@@ -1,4 +1,4 @@
-# Henrik Herzig
+Henrik Herzig
 
 ### Hi there 👋
 
